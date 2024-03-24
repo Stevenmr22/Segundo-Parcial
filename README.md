@@ -1,2 +1,0 @@
-# Segundo-Parcial
-Segundo-Parcial
